@@ -1,1 +1,1 @@
-**1c34**
+based, uplifted, symptoms of **1c** syndrome 🤒
