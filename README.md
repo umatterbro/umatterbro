@@ -1,1 +1,1 @@
-based, uplifted, symptoms of **1c** syndrome 🤒
+profile, what profile? idk what ur talking about mate
